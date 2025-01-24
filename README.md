@@ -1,6 +1,9 @@
 
-![](https://64.media.tumblr.com/a9a8ebf5bf2f70d08c9ed112f91b5ac9/b94343791c33f46f-6d/s640x960/6eb1702f063e2cdbce26ea12994f3214058a3d7e.gifv)
+![](https://64.media.tumblr.com/791e94c011cb149e878edcdd2d007c02/d93820579969211e-d5/s2048x3072/ec273a6470df6f95054c24e280b9b521803a62d4.jpg)
 
+<p align="center">
+  My lady, I will protect you
+  
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=DAUGHTER0FEVIL&label=Fans&color=red">
   </p>
